@@ -10,6 +10,6 @@ You can join any of the numerous channels according to your interests and you ma
 
 Feel free to contact any of our eminent members of our huge family to get your query answered, get an advice or just talk. 
 
-> # Enjoy making our Universe :Mars: a better place to live in.
+> # Enjoy making our Universe : Planet Mars : a better place to live in.
 
 Contribute your presence in making this the most adorable place on the Internet. 
